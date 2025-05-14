@@ -92,7 +92,7 @@ To improve healthcare operations and service quality through real-time dashboard
 
 **Sneha Jha**  
 *Data Analyst | Power BI Developer*  
-https://www.linkedin.com/in/sneha-jha-it | [Email] snehajhait@gmail.com
+https://www.linkedin.com/in/sneha-jha-it | snehajhait@gmail.com
 
 ---
 
